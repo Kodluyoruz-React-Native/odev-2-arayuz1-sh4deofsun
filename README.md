@@ -1,1 +1,1 @@
-arayuz tasarimi
+2 arayuz tasarimi
